@@ -1,3 +1,1 @@
-
-![sukhmanjeetkaurcertificate](https://user-images.githubusercontent.com/87376487/127842590-074ed1e8-033d-4474-8c32-74a4a9255037.png)
-
+![sukhmanjeetkaurcertificate](https://user-images.githubusercontent.com/87376487/127843068-2a57fc95-4ed3-47a8-9119-2420513bd414.png)
